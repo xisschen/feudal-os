@@ -246,3 +246,5 @@ A deeper limitation: "feudalism = clan system" is an ideal-type abstraction. Act
 ---
 
 *Independent research, June 2026*
+
+*Correspondence: pppcjl2014@gmail.com*

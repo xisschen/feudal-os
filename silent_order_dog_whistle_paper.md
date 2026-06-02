@@ -244,3 +244,5 @@ This paper is a conceptual analysis rather than an empirical study. Its validity
 ---
 
 *Final English version · Updated with empirical data + 2025 case*
+
+*Correspondence: pppcjl2014@gmail.com*
